@@ -1,5 +1,8 @@
 #Coffee
 
+##TL;DR
+Purchase coffee that has earned the <a href="http://nationalzoo.si.edu/SCBI/MigratoryBirds/Coffee/criteria.cfm" target="_blank">Bird-Friendly Certification</a>.
+
 ##The Problem
 The excerpt below is taken from <a href="http://www.huffingtonpost.com/2014/04/29/sustainable-coffee_n_5175192.html" target="_blank">The Coffee Industry Is Worse Than Ever For The Environment</a>.
 
