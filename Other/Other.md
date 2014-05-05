@@ -2,6 +2,8 @@
 
 ##TL;DR
 Purchase coffee that has earned the <a href="http://nationalzoo.si.edu/SCBI/MigratoryBirds/Coffee/criteria.cfm" target="_blank">Bird-Friendly Certification</a>.
+<br/>
+<img src="http://www.goldengateaudubon.org/wp-content/uploads/coffeelogo.jpg" height="100px" width="100px"/>
 
 ##The Problem
 The excerpt below is taken from <a href="http://www.huffingtonpost.com/2014/04/29/sustainable-coffee_n_5175192.html" target="_blank">The Coffee Industry Is Worse Than Ever For The Environment</a>.
@@ -15,6 +17,8 @@ The excerpt below is taken from <a href="http://www.huffingtonpost.com/2014/04/2
 
 ##Best Practice
 Purchase coffee that has earned the <a href="http://nationalzoo.si.edu/SCBI/MigratoryBirds/Coffee/criteria.cfm" target="_blank">Bird-Friendly Certification</a>.
+<br/>
+<img src="http://www.goldengateaudubon.org/wp-content/uploads/coffeelogo.jpg" height="100px" width="100px"/>
 
 The excerpt below is taken from <a href="http://www.huffingtonpost.com/mark-hostetler/sustainable-coffee-certifications_b_1446658.html" target="_blank">Coffee: What Do Different Sustainable Coffee Certifications Mean?</a>.
 <blockquote>
